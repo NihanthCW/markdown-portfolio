@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+![Nihanth Cherukuru's profile picture](https://premierpups.com/azure/affordablepup/pups/cavachon-puppies-637637517464994510.jpg)
