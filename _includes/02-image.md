@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![Nihanth Cherukuru's profile picture](https://premierpups.com/azure/affordablepup/pups/cavachon-puppies-637637517464994510.jpg)
