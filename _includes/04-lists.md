@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+- Bones
+- Tug toys
+   - Chicken treats
+   - Any food
